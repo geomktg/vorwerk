@@ -1,2 +1,2 @@
 # vorwerk
-Digitalizzazione Divisioni-Team Vorwerk COntempora
+Digitalizzazione Divisioni-Team Vorwerk Contempora
